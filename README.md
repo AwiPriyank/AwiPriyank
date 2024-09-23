@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AwiPriyank
+- 👋 Hi, I’m @Awanish
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning New Delhi India
 - 💞️ I’m looking to collaborate on 
