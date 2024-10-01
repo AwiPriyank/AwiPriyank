@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning New Delhi India
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me @awanishkr105@gmail.com
+- 📫 How to reach me @awnsh.work@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
